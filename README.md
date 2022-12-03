@@ -33,4 +33,4 @@ Serigne Sidy Mokhtar Mbacké, né le 11 juillet 19241 à Mbacké Kadior. Il est 
 
 #### Serigne Mountakha Mbacké (Depuis 2018)  
 ![Légende](https://th.bing.com/th/id/OIP.7wHdJN84CnnU8PNEEw0oaAHaEK?w=270&h=180&c=7&r=0&o=5&dpr=1.5&pid=1.7)  
-Serigne Mountakha Bassirou Mbacké est né en 1933 à Darou Kayel près de Mboul. Il est l'actuel khalife général des Mourides. Il succède à Serigne Sidi Moukhtar Mbacké.
+Serigne Mountakha Bassirou Mbacké est né en 1933 à Darou Kayel près de Mboul. Il est l'actuel khalife général des Mourides. Il succède à Serigne Sidi Mokhtar Mbacké.
