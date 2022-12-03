@@ -28,9 +28,9 @@ Serigne Saliou Mbacké est né à Diourbel le 22 septembre 1915. Il est le fils 
 Serigne Mouhamadou Lamine Bara Mbacké est né en 1921 à Touba. Fils de Cheikh Mouhamadou Falilou Mbacké et de Sokhna Khary Sall, il est l’homonyme de Serigne Mouhamadou Lamine Bara MBACKE, fils de Cheikh Ahmadou Bamba.
 
 #### Cheikh Sidy Mokhtar Mbacké	(2010 - 2018)  
-![Légende](https://th.bing.com/th/id/OIP.90-u3_XwwZnYGfQ_Av5YCgAAAA?pid=ImgDet&w=189&h=99&c=7&dpr=1,5)
+![Légende](https://th.bing.com/th/id/OIP.90-u3_XwwZnYGfQ_Av5YCgAAAA?pid=ImgDet&w=189&h=99&c=7&dpr=1,5)  
 Serigne Sidy Mokhtar Mbacké, né le 11 juillet 19241 à Mbacké Kadior. Il est le fils de Mouhamadou Lamine Bara Mbacké. Cheikh Sidy Mokhtar Mbacké succède à Serigne Bara Mbacké Falilou le 1er juillet 2010 à la tête de la confrérie mouride comme 7e Khalife des Mourides.
 
 #### Serigne Mountakha Mbacké (Depuis 2018)  
-![Légende](https://th.bing.com/th/id/OIP.7wHdJN84CnnU8PNEEw0oaAHaEK?w=270&h=180&c=7&r=0&o=5&dpr=1.5&pid=1.7)
+![Légende](https://th.bing.com/th/id/OIP.7wHdJN84CnnU8PNEEw0oaAHaEK?w=270&h=180&c=7&r=0&o=5&dpr=1.5&pid=1.7)  
 Serigne Mountakha Bassirou Mbacké est né en 1933 à Darou Kayel près de Mboul. Il est l'actuel khalife général des Mourides. Il succède à Serigne Sidi Moukhtar Mbacké.
