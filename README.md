@@ -17,7 +17,7 @@ Cheikh Abdoul Ahad Mbacké est né en 1914 à Diourbel. Il est le fils de Cheikh
 
 #### Cheikh Abdou Khadr Mbacké	(1989 - 1990)  
 ![Légende](https://th.bing.com/th/id/OIP.1SALJsjjAUi8V8PNZ026PQHaGp?w=207&h=186&c=7&r=0&o=5&dpr=1.5&pid=1.7)  
-Cheikh Abdou Khadr Mbacké est né une nuit de vendredi en 1914 à Daroul Alim (Alimoun Khabir) de NDAAME. Il est aussi un fils de Cheikh Ahmadou Bamba. Sa mère Sokhna Aminata BOUSSO, est la fille de Serigne MBOUSSOBE, un frère de Sokhna Diarra, la mère du Cheikh.
+Cheikh Abdou Khadr Mbacké est né une nuit de vendredi en 1914 à Daroul Alim (Alimoun Khabir) de NDAAME. Il est aussi un fils de Cheikh Ahmadou Bamba. Sa mère Sokhna Aminata BOUSSO, est la fille de Serigne MBOUSSOBE, un frère de Sokhna Mame Diarra Bousso, la mère du Cheikh.
 
 #### Cheikh Saliou Mbacké	(1990 - 2007)  
 ![Légende](https://th.bing.com/th/id/OIP.-Y8xSVJYimqffQe82UtqKwAAAA?w=110&h=180&c=7&r=0&o=5&dpr=1.5&pid=1.7)  
